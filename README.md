@@ -9,7 +9,7 @@
 
 <br>
 
-- Moro em Forquilhinha (SC-Brasil).
+- Moro em Forquilhinha (SC-Brasil)🇧🇷.
 
 <br>
 
@@ -17,15 +17,15 @@
 
 <br>
 
-- Estudante do 2ª Medio no colégio SATC, Além disso, estou cursando informática.
+- Estudante do 2ª Medio no colégio SATC, Além disso, estou cursando informática👨‍💻.
 
 <br>
 
-- Agro-Boy.
+- Agro-Boy👨‍🌾.
 
 <br>
 
-- Pro-Player em Jogos.
+- Pro-Player em Jogos🎮.
 
 ### 💻Competencias em programação:
 
@@ -65,8 +65,8 @@
 
 <br>
 
-- Viajar muito.
+- Viajar muito🚗.
 
 <br>
 
-- Ser rico sem ser preso.
+- Ser rico sem ser preso💰.
